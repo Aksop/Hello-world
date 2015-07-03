@@ -1,5 +1,5 @@
 # Hello-world
-halo bray ohayo konnichiwa weh apakabar coy genki?
+halo bray hisashiburiyo ne majide.. apakabar coy genki?
 
 ****
 
